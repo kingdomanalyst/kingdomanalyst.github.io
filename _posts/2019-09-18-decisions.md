@@ -10,7 +10,7 @@ Our lives are full of them. In fact some studies suggest that we make 35000 deci
 Whether or not you believe that statistic, you can probably attest to the fact that you make quite a number of decisions each day. 
 The majority of these decisions are made almost automatically, without much thought or deliberation. 
 But as the impact of the decisions grow, so does the time we take to make them. 
-These are fewer in number. And on the other end of the spectrum, 
+These decisions are fewer in number. And on the other end of the spectrum, 
 there are decisions we make that have a lasting impact not just on our own lives, 
 but on the lives of those around us. These are big decisions. 
 They are not made in a minute or even a day. 
@@ -40,7 +40,7 @@ Abram moved in direct obedience to God's command. His decision was not self-dire
 I can imagine that this was quite a scary decision to make, especially at his age (he was 75) 
 and in his day where travel was much more dangerous and burdensome than it is today. 
 But rather than being driven by fear, he chose to obey God instead. 
-Now God may not speak to you directly the way he spoke to Abram but he may put you (or even force you) 
+Now God may not speak to you directly the way he spoke to Abram, but he may put you (or even force you) 
 into a big-decision situation where you need to seek Him for guidance. 
 Acts 17:26-27 says, "From one man he made every nation of men, that they should inhabit the whole earth; 
 and ***he determined the times set for them and the exact places where they should live. 
